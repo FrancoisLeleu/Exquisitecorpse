@@ -1,4 +1,4 @@
-# exercise-exquisite-exquisite-corpse
+# exercise-exquisite-corpse
 # Tribulation of Captain de Lorme
 
 # Story:
