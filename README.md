@@ -5,7 +5,7 @@
 
 # Story:
 
-Capitaine de Lorme was an adventurer, wait no, he was THE adventurer ! Crossing th endless seas of the far new world to get all it's treasures and discover marvellous islands. Pursued by his worst ennemy, the Marquis de Carrina, since a duel in the old world, he had to fight for his freedom.
+Capitaine de Lorme was an adventurer, wait no, he was THE adventurer ! Crossing the endless seas of the far new world to get all it's treasures and discover marvellous islands. Pursued by his worst ennemy, the Marquis de Carrina, since a duel in the old world, he had to fight for his freedom.
 =======
 Tribulation of Captain de Lorme
 ===============================
