@@ -17,4 +17,4 @@ Capitaine de Lorme was an adventurer, wait no, he was THE adventurer ! Crossing 
 
 Sitation (Etienne)
 
-Capitaine de Lorme was eating his favourite group on the deck of his boat. The sun was shining, the seagulls were sceaming, the sea was calm and steady. He was watching the sun rise and sais "What a perfect and peaceful day".
+Capitaine de Lorme was eating his favourite fruit on the deck of his boat. The sun was shining, the seagulls were sceaming, the sea was calm and steady. He was watching the sun rise and sais "What a perfect and peaceful day".
