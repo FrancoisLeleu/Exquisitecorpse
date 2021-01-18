@@ -1,2 +1,2 @@
-# exercise-exquisite-corpse
-exquisite corpse challenge
+# exercise-exquisite-exquisite
+Tribulation of Captain de Lorme
